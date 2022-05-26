@@ -1,1 +1,0 @@
-# 20BCS041_Rithika
